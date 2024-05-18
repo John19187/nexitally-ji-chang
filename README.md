@@ -7,6 +7,7 @@ Nexitally-奶昔机场自2017年创立以来，以高端稳定的翻墙服务为
 
 ## [nexitally机场官网地址新入口](https://nxboom.com/signupbyemail.aspx?MemberCode=45450e9eadf743fb93c5b8e97922836620240516133240)
 
+**本入口长期更新，以便访问**
 
 
 ## 优惠活动
