@@ -223,4 +223,4 @@ nexitally持海量的自有IP与先进的解锁技术，带您畅享全球最新
 借助nexitally机场，您可以访问Microsoft Azure AI，享受其提供的多种人工智能服务。这包括语言理解、机器翻译和认知服务，为您的业务提供智能化的解决方案。</details>
 
 这就是关于[nexitally机场](https://www.jichang8.com/ji-chang-guide/how-is-nexitally.html)[官网地址新入口](https://github.com/John19187/nexitally-ji-chang/)，奶昔机场评测的所有内容了。
-本文固定连接：https://github.com/John19187/v2ray-SSR-Clash-Verge-Shadowrocke/blob/main/README.md
+本文固定连接：https://github.com/John19187/nexitally-ji-chang
