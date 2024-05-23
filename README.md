@@ -6,11 +6,11 @@ Nexitally-奶昔机场自2017年创立以来，以高端稳定的翻墙服务为
 ## 目录
 
 1. [nexitally机场官网地址新入口](#nexitally机场官网地址新入口)
-2. [优惠活动](#优惠活动)
+2. [优惠活动](#活动)
 3. [套餐价格概述](#套餐价格概述)
-4. [nexitally机场客户端](#nexitally机场客户端)
+4. [nexitally机场客户端](#nexitally机场客户端支持)
 5. [nexitally机场测试](#nexitally机场测试)
-6. [机场问答](#机场问答)
+6. [机场问答](#nexitally机场问答)
 
 
 &nbsp;&nbsp;
@@ -24,11 +24,11 @@ Nexitally-奶昔机场自2017年创立以来，以高端稳定的翻墙服务为
 &nbsp;&nbsp;
 &nbsp;&nbsp;
  
-## 优惠活动
+## 促销活动
 
 单次充值满1000元，赠送100元余额
 nexitally当前无优惠码
-关注本页，会第一时间更新nexitally机场的优惠活动
+关注本页，会第一时间更新nexitally机场的促销活动
 
 ## 套餐价格概述
 
