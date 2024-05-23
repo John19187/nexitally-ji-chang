@@ -19,7 +19,7 @@ Nexitally-奶昔机场自2017年创立以来，以高端稳定的翻墙服务为
  
 
 
-<h2> <a href="https://ssr.v2ray-clash.top/go/naixi" target="_blank">nexitally机场官网地址最新入口</a> </h2>👈👈👈
+## [nexitally机场官网地址最新入口](https://ssr.v2ray-clash.top/go/naixi) 👈👈👈
 
 
 **nexitally防失联官网入口长期更新，以便访问**
@@ -35,7 +35,7 @@ Nexitally-奶昔机场自2017年创立以来，以高端稳定的翻墙服务为
 </ul>
 
 - 极速稳定 - 超大网络带宽，晚高峰速率保障章。
-- 全线路内网专线 - 直通线路不共享，高达1000Mbps节约成本-性价比高，老客高回购率
+- 全线路内网专线 - 直通线路不共享，高达1000Mbps-年付月付促销活动中，性价比高，老客回购率高
 - 客户端 - 提供专属三端APP，适合小白操作，一键登录选节点，一秒上手
 &nbsp;&nbsp;
 <ul>
