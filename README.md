@@ -6,9 +6,9 @@ Nexitally-奶昔机场自2017年创立以来，以高端稳定的翻墙服务为
 ## 目录
 
 1. [nexitally机场官网地址新入口](#nexitally机场官网地址新入口)
-2. [优惠活动](#活动)
+2. [促销活动](#促销活动)
 3. [套餐价格概述](#套餐价格概述)
-4. [nexitally机场客户端](#nexitally机场客户端支持)
+4. [nexitally机场客户端支持](#nexitally机场客户端支持)
 5. [nexitally机场测试](#nexitally机场测试)
 6. [机场问答](#nexitally机场问答)
 
