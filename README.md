@@ -25,7 +25,7 @@ Nexitally-奶昔机场自2017年创立以来，以高端稳定的翻墙服务为
 **nexitally防失联官网入口长期更新，以便访问 👆👆👆**
 
 
-**nexitally防失联官网入口长期更新，以便访问**
+
 
 &nbsp;&nbsp;
 
@@ -38,7 +38,7 @@ Nexitally-奶昔机场自2017年创立以来，以高端稳定的翻墙服务为
 </ul>
 
 - 极速稳定 - 超大网络带宽，晚高峰速率保障章。
-- 全线路内网专线 - 直通线路不共享，高达1000Mbps-年付月付促销活动中，性价比高，老客回购率高
+- 全线路内网专线 - 直通线路不共享，高达1000Mbps-**年付月付优惠活动中，性价比高**，老客回购率高
 - 客户端 - 提供专属三端APP，适合小白操作，一键登录选节点，一秒上手
 &nbsp;&nbsp;
 <ul>
@@ -140,7 +140,10 @@ nexitally支持所有主流设备，包括手机、平板、windows、Mac个人�
 <p>
 	» <a href="https://SSR.v2ray-clash.top/go/mjgVEOve896" target="_blank">进入星链机场- 性价比推荐</a> 
 </p>
-  
+
+------------
+
+
 ## nexitally机场测试
 
 nexitally机场测试速度可流畅观看youtube 4K视频并支持支持bing ai、ChatGPT等AIGC服务与奈飞-Netflix、HBO MAX、Spotify、Disney+、Hulu 、Primevideo等流媒体平台
