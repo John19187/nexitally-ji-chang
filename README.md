@@ -5,7 +5,7 @@ Nexitally-奶昔机场自2017年创立以来，以高端稳定的翻墙服务为
 
 ## 目录
 
-1. [nexitally机场官网地址最新入口](#nexitally机场官网地址最新入口 👈👈👈)
+1. [nexitally机场官网地址最新入口](#nexitally机场官网地址最新入口)
 2. [好用机场推荐](#好用机场推荐)
 3. [促销活动](#促销活动)
 4. [套餐价格概述](#套餐价格概述)
@@ -19,7 +19,10 @@ Nexitally-奶昔机场自2017年创立以来，以高端稳定的翻墙服务为
  
 
 
-## [nexitally机场官网地址最新入口](https://ssr.v2ray-clash.top/go/naixi) 👈👈👈
+## [nexitally机场官网地址最新入口](https://ssr.v2ray-clash.top/go/naixi)
+
+
+**nexitally防失联官网入口长期更新，以便访问 👆👆👆**
 
 
 **nexitally防失联官网入口长期更新，以便访问**
